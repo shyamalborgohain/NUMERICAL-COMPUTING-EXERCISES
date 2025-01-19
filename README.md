@@ -1,1 +1,1 @@
-## Let's learn and grow together!
+## Let's learn, enjoy and grow together!
